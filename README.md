@@ -1,0 +1,1 @@
+# Easier-And-Effective-Way-To-Pass-the-Identity-and-Access-Management-designer-Exam-With-Salesforce-Id
